@@ -1,2 +1,2 @@
 # Branding
-The branding guidelines for the Faithful Tweaks project.
+The branding guidelines for the Faithful Tweaks project. (Under construction)
